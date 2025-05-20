@@ -1,0 +1,1 @@
+# Projeto-GoodWe-Integra-o-Sustent-vel-e-Inteligente-com-Assistentes-Virtuais
